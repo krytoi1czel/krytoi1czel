@@ -2,7 +2,7 @@
 - 👀 I’m interested in proggraming
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on -
-- 📫 How to reach me telegram: t.me/jahebdhxbsvdchc
+- 📫 How to reach me telegram: t.me/D1XPEHOD
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Im creator of D1X 
 
